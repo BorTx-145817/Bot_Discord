@@ -1,0 +1,1 @@
+Asalamualaikum jangan pernah menjual sc ini ya dan sekian terima kasih
